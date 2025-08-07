@@ -32,5 +32,5 @@ and treat everyone with courtesy.
 To my country and my people, I pledge my devotion.
 In their well-being and prosperity alone lies my happiness. 
 
-
+ajbasdhdhhdhdhdh sinB ORU Mnddand
              
