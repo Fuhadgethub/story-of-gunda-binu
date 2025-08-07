@@ -5,9 +5,9 @@ the untold story of kgf, the kgf owened by sanin fuhaaaaaaad
 in the heart of mumbai chaotic under world 
 one name echoned like thuder through the alliiiiiiii
 
-Rocky Bhai, the legendary don of KGF, rose from the streets of Mumbai to rule the gold mines of Karnataka.
+Rocky Bhai, the legendary don of KGF,========= rose from the streets of Mumbai to rule the gold mines of Karnataka.
 Driven by a promise to his dying mother, he fought through poverty, power struggles, and ruthless enemies to become the messiah of the oppressed miners.
-Feared by the powerful and loved by the poor, Rocky's name echoed like thunder across India. His legacy lives on as a symbol of rebellion, strength, 
+Feared by the powerful and loved by the poor====================, Rocky's name echoed like thunder across India. His legacy lives on as a symbol of rebellion, strength, 
 and the unstoppable rise of a man who rewrote destiny with fire and blood.
 eus of the dhaavi
 and the corrider of minhaj bhaiiiiiiiiiiiiiiii
@@ -20,14 +20,17 @@ the story of ibraaaheem
 നിരവധി ശ്രമങ്ങൾക്കൊരുടേയും പിടിയിലായില്ല, ദാവൂദ് ഇപ്പോഴും അനധികൃതമായ നിലയിൽ ദൃഷ്ടി വിട്ടിരിക്കുന്നു, അദ്ദേഹത്തിന്റെ പേര് ഭയത്തിന്റെ പ്രതീകമായി തുടരുന്നു. 
 ഒരു ക്രിമിനലായാണ് മാത്രമല്ല, അപ്രത്യക്ഷമായ ശക്തിയുടെ പ്രതീകമായാണ് അദ്ദേഹത്തിന്റെ കത്തെക്കൂടി ജീവിക്കുന്നു.
 
-
+ihsdhdvhiuhi
 Indian Pledgeeeeee
 
 India is my country.
 All Indians are my brothers and sisters.
 I love my country, and I am proud of its rich and varied heritage.
-I shall always strive to be worthy of it.
+I shall always strive to be worthy of it.123
 I shall give my parents, teachers, and all elders respect,
+
+
+
 and treat everyone with courtesy.
 To my country and my people, I pledge my devotion.
 In their well-being and prosperity alone lies my happiness. 
