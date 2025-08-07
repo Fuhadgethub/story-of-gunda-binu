@@ -21,4 +21,16 @@ the story of ibraaaheem
 ഒരു ക്രിമിനലായാണ് മാത്രമല്ല, അപ്രത്യക്ഷമായ ശക്തിയുടെ പ്രതീകമായാണ് അദ്ദേഹത്തിന്റെ കത്തെക്കൂടി ജീവിക്കുന്നു.
 
 
+Indian Pledgeeeeee
+
+India is my country.
+All Indians are my brothers and sisters.
+I love my country, and I am proud of its rich and varied heritage.
+I shall always strive to be worthy of it.
+I shall give my parents, teachers, and all elders respect,
+and treat everyone with courtesy.
+To my country and my people, I pledge my devotion.
+In their well-being and prosperity alone lies my happiness. 
+
+
              
