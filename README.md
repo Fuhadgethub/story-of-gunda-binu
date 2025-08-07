@@ -31,6 +31,10 @@ I shall give my parents, teachers, and all elders respect,
 and treat everyone with courtesy.
 To my country and my people, I pledge my devotion.
 In their well-being and prosperity alone lies my happiness. 
+jgfttfyyugfyjyufutyu
+jhvctcyhjm
+hjvgckgcy
+ljvhcutftyj
 
 
              
